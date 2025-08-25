@@ -1,0 +1,1 @@
+The coming soon background for my website
